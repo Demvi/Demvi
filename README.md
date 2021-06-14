@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Demvi
 - 👀 I’m interested in Dota 2
-- 🌱 I’m currently learning Englisg язык)
+- 🌱 I’m currently learning English язык)
 - 💞️ I’m looking to collaborate on Valve)
 - 📫 How to reach me demvi0206@gmail.com
 
